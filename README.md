@@ -1,1 +1,1 @@
-# WIP Themed Entertianment at UC San Diego Website
+# WIP Themed Entertainment Association at UC San Diego Website
